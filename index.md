@@ -15,10 +15,10 @@ ALL OF YOU.
 
 
 
-### Jekyll Themes
+### Sponsors
 
 
 
-### Support or Contact
+### Data Gif
 
 
