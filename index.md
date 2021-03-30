@@ -12,7 +12,8 @@ ALL OF YOU.
 **Bold** and _Italic_ and `Code` text
 
 
-
+kryptonRibbon1.ResetQATLocation();
+kryptonRibbon1.QATLocation = ComponentFactory.Krypton.Ribbon.QATLocation.Hidden;
 
 
 ### Jekyll Themes
