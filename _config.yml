@@ -1,1 +1,4 @@
 theme: jekyll-theme-merlot
+
+kryptonRibbon1.ResetQATLocation();
+kryptonRibbon1.QATLocation = ComponentFactory.Krypton.Ribbon.QATLocation.Hidden;
