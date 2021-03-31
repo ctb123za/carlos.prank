@@ -9,7 +9,7 @@ ALL OF YOU.
 
 ### Disclaimer
 
-Only in use for April fools. 
+Only in use for April fools. <3
 
 ### Sponsors
 
