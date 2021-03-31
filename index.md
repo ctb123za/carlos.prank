@@ -14,6 +14,8 @@ I'm Gonna Getcha Good - Shania Twain
 
 ![tumblr_nm4mklfIwk1ruhtb7o1_500](https://user-images.githubusercontent.com/81630632/113181310-849bc100-9249-11eb-880e-3bfec3459d6e.gif)
 
+### Sponsors
+
 ![Sponsor2](https://user-images.githubusercontent.com/81630632/113160233-37adef80-9235-11eb-9eec-e796d56bde60.jpg)
 
 ![Sponsor3](https://user-images.githubusercontent.com/81630632/113161939-c0795b00-9236-11eb-846e-6c9f6e1d616b.jpg)
@@ -31,7 +33,7 @@ I'm Gonna Getcha Good - Shania Twain
 Only in use for April fools. <3 
 Will be removed by Midday
 
-### Sponsors
+
 
 
 
