@@ -26,3 +26,10 @@ Will be removed by Midday
 ![Sponsor3](https://user-images.githubusercontent.com/81630632/113161939-c0795b00-9236-11eb-846e-6c9f6e1d616b.jpg)
 
 ![Sponsor](https://user-images.githubusercontent.com/81630632/113160259-40062a80-9235-11eb-8191-232c9800a18f.jpg)
+
+![Carlos](https://user-images.githubusercontent.com/81630632/113182181-83b75f00-924a-11eb-8e5a-68cfca4e012f.gif)
+
+![space-fish-3](https://user-images.githubusercontent.com/81630632/113182200-8b770380-924a-11eb-8816-a480de58b689.jpg)
+
+![Damm](https://user-images.githubusercontent.com/81630632/113182223-8f0a8a80-924a-11eb-8c74-aee1407d8047.gif)
+
