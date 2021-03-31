@@ -33,9 +33,3 @@ I'm Gonna Getcha Good - Shania Twain
 ### Disclaimer
 
 Only in use for April fools. <3 
-Will be removed by Midday
-
-
-
-
-
