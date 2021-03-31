@@ -16,8 +16,3 @@ Only in use for April fools.
 ![Sponsor2](https://user-images.githubusercontent.com/81630632/113160233-37adef80-9235-11eb-9eec-e796d56bde60.jpg)
 
 ![Sponsor](https://user-images.githubusercontent.com/81630632/113160259-40062a80-9235-11eb-8191-232c9800a18f.jpg)
-
-
-### Data Gif
-
-
