@@ -14,6 +14,12 @@ I'm Gonna Getcha Good - Shania Twain
 
 ![tumblr_nm4mklfIwk1ruhtb7o1_500](https://user-images.githubusercontent.com/81630632/113181310-849bc100-9249-11eb-880e-3bfec3459d6e.gif)
 
+![Carlos](https://user-images.githubusercontent.com/81630632/113182181-83b75f00-924a-11eb-8e5a-68cfca4e012f.gif)
+
+![space-fish-3](https://user-images.githubusercontent.com/81630632/113182200-8b770380-924a-11eb-8816-a480de58b689.jpg)
+
+![Damm](https://user-images.githubusercontent.com/81630632/113182223-8f0a8a80-924a-11eb-8c74-aee1407d8047.gif)
+
 ### Sponsors
 
 ![Sponsor2](https://user-images.githubusercontent.com/81630632/113160233-37adef80-9235-11eb-9eec-e796d56bde60.jpg)
@@ -22,11 +28,7 @@ I'm Gonna Getcha Good - Shania Twain
 
 ![Sponsor](https://user-images.githubusercontent.com/81630632/113160259-40062a80-9235-11eb-8191-232c9800a18f.jpg)
 
-![Carlos](https://user-images.githubusercontent.com/81630632/113182181-83b75f00-924a-11eb-8e5a-68cfca4e012f.gif)
 
-![space-fish-3](https://user-images.githubusercontent.com/81630632/113182200-8b770380-924a-11eb-8816-a480de58b689.jpg)
-
-![Damm](https://user-images.githubusercontent.com/81630632/113182223-8f0a8a80-924a-11eb-8c74-aee1407d8047.gif)
 
 ### Disclaimer
 
