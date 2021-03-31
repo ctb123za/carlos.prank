@@ -5,7 +5,7 @@
 
 ### Target Audience
 
-ALL OF YOU.
+ALL OF YOU. Like Shania Twain once said: "Just like I should I'll getcha good!!"
 
 ### Disclaimer
 
