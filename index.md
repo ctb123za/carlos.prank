@@ -1,4 +1,4 @@
-## Welcome to a lame attempt at an april fools prank. If you clicked on this link it means you were fooled right? 
+## Welcome to a lame attempt at an april fools prank. If you clicked on this link it means you were fooled right? YEAH YOU WERE! 
 
 ![testsselfie](https://user-images.githubusercontent.com/81630632/113008926-66fa2900-916f-11eb-8ae5-46bc2192e761.jpg)
 
