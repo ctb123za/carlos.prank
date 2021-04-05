@@ -5,6 +5,7 @@
 Nicole T: Lookie what we have here! Who were you trying to impress Bash? What's her name????
 
 Carlos Lopes: You got me on twitch and Twitter but you choose to invade this? You have a separate page for your VO work. Professionalism Nikki.
+I forgot some TNC members use this for side projects.
 
 Nicole T: Awww OK! Whoever she is. I hope she realises. You know, You're just amazing! Go get her tiger. 
 ROAR! Leanna says you only listen to Shania when you're in love 😂 you would know if you read her book
