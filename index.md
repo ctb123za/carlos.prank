@@ -11,8 +11,8 @@ I forgot some TNC members use this for side projects.
 
 Nicole T: Awww OK! Whoever she is. I hope she realises. You know, You're just amazing! Go get her tiger. 
 ROAR! Leanna says you only listen to Shania when you're in love 😂 you would know if you read her book
-Honestly, you're in two chapters. 
-C'Mon Carlos!
+Honestly, you're in two chapters. C'Mon Carlos! 
+It made some people cry it was that good.
 
 Nicole T: Oh before I forget Boo Boo, Bianca is working on a DMW story telling project
 I saw the draft on your Wild Card Match With NDT Where it was a 2V2
