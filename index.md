@@ -29,7 +29,7 @@ Your still just a playing piece" 🤭😂😂
 You're so lucky you were not DQ. Anyway looking 
 Forward to seeing it when it's done. 
 
-Carlos Lopes: sounds good I'll keep an eye out for it
+Carlos Lopes: Feels like so long ago. sounds good I'll keep an eye out for it
 Btw, retire this page i have no use for it anymore 
 
 Nicole T: Sure thing Boo. 
