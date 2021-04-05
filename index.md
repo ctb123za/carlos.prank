@@ -2,6 +2,49 @@
 
 ![testsselfie](https://user-images.githubusercontent.com/81630632/113008926-66fa2900-916f-11eb-8ae5-46bc2192e761.jpg)
 
+Nicole T: Lookie what we have here! Who were you trying to impress Bash? What's her name????
+
+Carlos Lopes: You got me on twitch and Twitter but you choose to invade this? You have a separate page for your VO work. Professionalism Nikki.
+
+Nicole T: Awww OK! Whoever she is. I hope she realises. You know, You're just amazing! Go get her tiger. 
+ROAR! Leanna says you only listen to Shania when you're in love 😂 you would know if you read her book
+Honestly, you're in two chapters. 
+C'Mon Carlos!
+
+Nicole T: Oh before I forget Boo Boo, Bianca is working on a DMW story telling project
+I saw the draft on your Wild Card Match With NDT Where it was a 2V2
+The insults Carlos. The insults! If you don't remember:
+
+When Andy said "this is no place for a lady"
+You said "Then why are you in the vicinity?" 🤣🤣
+
+The referee gave you a warning but then Immediately followed up with:
+
+"Hey Andy, I see that even when a pawn becomes a queen
+Your still just a playing piece" 🤭😂😂
+
+You're so lucky you were not DQ. Anyway looking 
+Forward to seeing it when it's done. 
+
+Carlos Lopes: sounds good I'll keep an eye out for it
+Btw, retire this page i have no use for it anymore 
+
+Nicole T: Sure thing Boo. 
+
+Carlos Lopes: Not your Boo! But you are my favourite VO Actress!
+Are CC Going to hire you for future games or can't you say?
+
+Nicole T: Aww Fanks!! Nope but swing by stream later I'll give you a special shout out.
+
+Carlos Lopes: I'll have to pass but I'll be sure to check out the VOD
+
+Nicole T: OKEH! Catch you later Bash. 
+
+Carlos Lopes: It's alright, you go on ahead. I'm not gonna die on you, 
+and leave you in a cold, cruel, Carlos-less world."
+
+Nicole T: "Ok" 😁
+ 
 
 ### Target Audience
 
