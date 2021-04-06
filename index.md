@@ -2,7 +2,7 @@
 
 ![testsselfie](https://user-images.githubusercontent.com/81630632/113008926-66fa2900-916f-11eb-8ae5-46bc2192e761.jpg)
 
-### Visible Comments 
+### Editor Comments 
 
 Nicole T: Lookie what we have here! Who were you trying to impress Bash? What's her name????
 
