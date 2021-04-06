@@ -30,7 +30,7 @@ You're so lucky you were not DQ. Anyway looking
 Forward to seeing it when it's done. 
 
 Carlos Lopes: Feels like so long ago. sounds good I'll keep an eye out for it
-Btw, retire this page i have no use for it anymore 
+Btw, retire this page i have no use for it anymore. Thanks for letting me use it! I saw some interesting project titles but I'll resist the urge to check it. 
 
 Nicole T: Sure thing Boo. 
 
