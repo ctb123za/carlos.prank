@@ -37,7 +37,7 @@ Nicole T: Sure thing Boo.
 Carlos Lopes: Not your Boo! But you are my favourite VO Actress!
 Are CC Going to hire you for future games or can't you say?
 
-Nicole T: Aww Fanks!! Nope but swing by stream later I'll give you a special shout out.
+Nicole T: Aww Fanks!! My lips are sealed, but swing by stream later I'll give you a special shout out.
 
 Carlos Lopes: I'll have to pass but I'll be sure to check out the VOD
 
