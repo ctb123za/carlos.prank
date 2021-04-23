@@ -82,23 +82,25 @@ Only in use for April fools. <3
 
 
 
-**As one of the core on site medical personnel, What do you love most about the DMW?**
+###Interview with Bianca Williams
 
 ![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png)
 
-Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me. 
+**As one of the core on site medical personnel, What do you love most about the DMW Bianca?**
+
+BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me. 
 
 **Care to name a few?**
 
-Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting I assure you. If you have not read it already.
+BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting I assure you. If you have not read it already.
 
 **Yes! Loved it, read it twice. You were assigned to Carlos Lopes, what was that like?
 
-For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony.
+BW: For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony.
 
 The Quarter finals was a test for me as he clearly was suffering from fatigue and lack of mental awareness, Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part!
 
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?
 
-Absolutely! If my schedule permits. We try to remain impartial. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. 
+BW: Absolutely! If my schedule permits. We try to remain impartial. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. 
