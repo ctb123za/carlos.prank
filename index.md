@@ -84,7 +84,7 @@ Only in use for April fools. <3
 
 **As one of the core on site medical personnel, What do you love most about the DMW?**
 
-![image](https://user-images.githubusercontent.com/81630632/115887736-229a3a00-a44a-11eb-911d-71644988e712.png)
+![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png)
 
 
 **Care to name a few?**
