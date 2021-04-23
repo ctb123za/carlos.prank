@@ -100,6 +100,9 @@ BW: For a charming and well-mannered man it was An absolute nightmare! I will ne
 
 The Quarter finals was a test for me as he clearly was suffering from fatigue and lack of mental awareness, Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. Despite at times pleading with him to just stop for his own good. However, given the conditions that he was competing in, he did not have much of a choice, but I got the sense he enjoyed it when things were more difficult. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part!
 
+**In his victory speech the first thing he did was thank you for looking after him. Called you an unsung hero, and a credit to your profession, how did that make you feel?** 
+
+BW: In the grand scheme of things, we are not as actively involved since we operate behind the scenes as you know. I do remember crying just a little! More overjoyed at the fact that he managed to win the tournament. It was such an honour looking after Carlos. He also bought me flowers, some chocolates and a voucher. He also took me out for a wonderful evening where he paid for it all. You can say he made up for it! 😊 
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
