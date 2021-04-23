@@ -102,7 +102,7 @@ The Quarter finals was a test for me as he clearly was suffering from fatigue an
 
 **In his victory speech the first thing he did was thank you for looking after him. Called you an unsung hero, and a credit to your profession, how did that make you feel?** 
 
-BW: In the grand scheme of things, we are not as actively involved since we operate behind the scenes as you know. I do remember crying just a little! More overjoyed at the fact that he managed to win the tournament. It was such an honour looking after Carlos. He also bought me flowers, some chocolates and a voucher. He also took me out for a wonderful evening where he paid for it all. You can say he made up for it! 😊 
+BW: In the grand scheme of things, we are not as actively involved since we operate behind the scenes as you know. I do remember crying just a little! It felt like I was there with him the whole time throughout his journey. More overjoyed at the fact that he managed to win the tournament. It was such an honour looking after Carlos. He also bought me flowers, some chocolates and a voucher. He also took me out for a wonderful evening where he paid for it all. You can say he made up for it! 😊 
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
