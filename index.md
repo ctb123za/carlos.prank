@@ -92,7 +92,7 @@ BW: Everyone has a Story in their own right, The competitors, even the Tournamen
 
 **Care to name a few?**
 
-BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting I assure you. If you have not read it already.
+BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
 
 **Yes! Loved it, read it twice. You were assigned to Carlos Lopes, what was that like?**
 
