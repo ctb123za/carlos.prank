@@ -103,4 +103,4 @@ The Quarter finals was a test for me as he clearly was suffering from fatigue an
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
-BW: Absolutely! If my schedule permits. We try to remain impartial. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. 
+BW: Absolutely! If my schedule permits. We try to remain impartial. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. There are some people that just suck you in with their infectious personality, and he is one of them. 
