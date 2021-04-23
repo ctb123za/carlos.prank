@@ -82,9 +82,9 @@ Only in use for April fools. <3
 
 
 
-### Interview with Bianca Williams
+### 🦋 Interview with Bianca Williams 🦋
  
-🦋 ![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png) 🦋
+![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png) 
 
 **As one of the core on site medical personnel, What do you love most about the DMW Bianca?**
 
