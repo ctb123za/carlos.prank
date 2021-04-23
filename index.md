@@ -83,8 +83,8 @@ Only in use for April fools. <3
 
 
 ### Interview with Bianca Williams
-
-![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png)
+ 
+🦋 ![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png) 🦋
 
 **As one of the core on site medical personnel, What do you love most about the DMW Bianca?**
 
@@ -106,4 +106,4 @@ BW: In the grand scheme of things, we are not as actively involved since we oper
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
-BW: Absolutely! If my schedule permits. We try to remain impartial. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. There are some people that just suck you in with their infectious personality, and he is one of them. 
+BW: Absolutely! If my schedule permits. We try to remain impartial. Would jump at the chance to be assigned to Lea. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. There are some people that just suck you in with their infectious personality, and he is one of them. 
