@@ -114,8 +114,9 @@ BW: In the grand scheme of things, we are not as actively involved since we oper
 
 **I heard Carlos Took you out to celebrate one evening, this true?**
 
-He Sure did! He also bought me flowers, some chocolates and a voucher. He also took me out for a wonderful evening where he paid for it all. You can say he made up for it! I really had alot of fun. 😊 
+He Sure did! Took me out for a wonderful evening, He also bought me flowers, some chocolates and a voucher. You can say he made up for it! There are some people that just suck you in with their infectious personality, and he is one of them. I really had alot of fun. 😊 
+
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
-BW: Absolutely! If my schedule permits. We try to remain impartial. Would jump at the chance to be assigned to Lea. But I would not mind being assigned to Carlos again. Normal just isn’t in his vocabulary. There are some people that just suck you in with their infectious personality, and he is one of them. 
+BW: Absolutely! If my schedule permits. We try to remain impartial. The well being of each individual is our primary goal. 
