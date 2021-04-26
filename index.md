@@ -86,9 +86,18 @@ Only in use for April fools. <3
  
 ![image](https://user-images.githubusercontent.com/81630632/115889873-42caf880-a44c-11eb-82a8-c2c56322113a.png) 
 
+**How did your role come about?**
+
+Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I feel about leading that division, one thing lead to another and the rest is history as they say. 😊 
+
 **As one of the core on site medical personnel, What do you love most about the DMW Bianca?**
 
-BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me. 
+BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me.
+
+**Your favourite DMW Moment?**
+
+BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed.
+
 
 **Care to name a few that has caught your eye?**
 
