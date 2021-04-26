@@ -115,7 +115,7 @@ BW: In the grand scheme of things, we are not as actively involved since we oper
 
 **I heard Carlos Took you out to celebrate one evening, this true?**
 
-BW: He Sure did! Took me out for a wonderful evening, He also bought me flowers, some chocolates and a voucher. You can say he made up for it! There are some people that just suck you in with their infectious personality, and he is one of them. I really had alot of fun. 😊 
+BW: He Sure did! Took me out for a wonderful evening, He also bought me flowers, some chocolates and a voucher. You can say he made up for all the stress he caused me haha!  There are some people that just suck you in with their infectious personality, and he is one of them. I really had alot of fun. 😊 
 
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
