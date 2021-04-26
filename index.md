@@ -88,30 +88,33 @@ Only in use for April fools. <3
 
 **How did your role come about?**
 
-Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I feel about leading that division, one thing lead to another and the rest is history as they say. 😊 
+BW: Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I feel about leading that division, one thing lead to another and the rest is history as they say. 😊 
 
 **As one of the core on site medical personnel, What do you love most about the DMW Bianca?**
 
 BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me.
 
-**Your favourite DMW Moment?**
-
-BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed.
-
-
 **Care to name a few that has caught your eye?**
 
-BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
+BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, but in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
 
 **Yes! Loved it, read it twice. You were assigned to Carlos Lopes, what was that like?**
 
-BW: For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony. Before I knew it, my colleagues were signing it. It was quite the scene, I knew there and then that he would not make things easy for me. I remember wanting to recommend him to the nearest psychatic ward I thought he was that crazy.
+BW: For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony. I was not best pleased! Before I knew it, my colleagues were signing it. It was quite the scene, I knew there and then that he would not make things easy for me. I remember wanting to recommend him to the nearest psychatic ward I thought he was that crazy.
 
 The Quarter finals was a test for me as he clearly was suffering from fatigue and lack of mental awareness, Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. Despite at times pleading with him to just stop for his own good. However, given the conditions that he was competing in, he did not have much of a choice, but I got the sense he enjoyed it when things were more difficult. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part!
 
-**In his victory speech the first thing he did was thank you for looking after him. Called you an unsung hero, and a credit to your profession, how did that make you feel?** 
+**Your favourite DMW Moment?**
 
-BW: In the grand scheme of things, we are not as actively involved since we operate behind the scenes as you know. I do remember crying just a little! It felt like I was there with him the whole time throughout his journey. More overjoyed at the fact that he managed to win the tournament. It was such an honour looking after Carlos. He also bought me flowers, some chocolates and a voucher. He also took me out for a wonderful evening where he paid for it all. You can say he made up for it! 😊 
+BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed. The only thing that mattered was their match. What a Spectacle It was.
+
+**In his victory speech the first thing he did was thank you for looking after him. Called you a "Royal Physician" Is that where you got your nickname?** 
+
+BW: In the grand scheme of things, we are not as actively involved since we operate behind the scenes as you know. I do remember crying just a little! It felt like I was there with him the whole time throughout his journey. More overjoyed at the fact that he managed to win the tournament. Yes, ever since then that nickname just stuck with me. One I feel that I don't deserve, I am thankful for the thought. 
+
+**I heard Carlos Took you out to celebrate one evening, this true?**
+
+He Sure did! He also bought me flowers, some chocolates and a voucher. He also took me out for a wonderful evening where he paid for it all. You can say he made up for it! I really had alot of fun. 😊 
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
