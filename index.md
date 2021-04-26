@@ -84,7 +84,7 @@ Only in use for April fools. <3
 
 ### 🦋 Interview with Bianca Williams 🦋
  
-![image](https://user-images.githubusercontent.com/81630632/116121593-ab1e1200-a6b8-11eb-8881-6844d7360f02.png)
+   ![image](https://user-images.githubusercontent.com/81630632/116121593-ab1e1200-a6b8-11eb-8881-6844d7360f02.png)
 
 
 **How did your role come about?**
