@@ -120,4 +120,4 @@ BW: He Sure did! Took me out for a wonderful evening, He also bought me flowers,
 
 **If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
-BW: Absolutely! If my schedule permits. We try to remain impartial. The well being of each individual is our primary goal. 
+BW: Absolutely! If my schedule permits. We try to remain impartial of course. I'm really just glad to be able to help people. We got to make sure that the committee doesn't do anything lavish and remain grounded 😉
