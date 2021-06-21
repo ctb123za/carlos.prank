@@ -89,7 +89,7 @@ Only in use for April fools. <3
 
 **Hello Bianca! Can I just say that you're one of my favourite people! How did your role come about?**
 
-BW: Awww Thanks Kate! Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees. Since It can potentially go on for long hours at a time, one thing led to another and the committee asked how I felt about becoming a medic on site, one thing lead to another and the rest is history as they say. 😊
+BW: Awww Thanks Kate! Well, I initially started out as a contestant. However, after being knocked out in the preliminaries when the DMW tradition began, I was around when there were a few concerns with the well being of other entrees. Since It can potentially go on for long hours at a time, one thing led to another and the committee asked how I felt about becoming a medic on site, one thing lead to another and the rest is history as they say. 😊
 
 **You have been Instrumental with the changes and procedures over the years, what do the Tournament entrees typically go through before it starts?**
 
