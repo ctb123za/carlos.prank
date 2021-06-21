@@ -119,7 +119,7 @@ The fatigue seemed gone, his awareness was back. Thank God the committee gave hi
 
 ![image](https://user-images.githubusercontent.com/81630632/122811813-d55f0b00-d2c8-11eb-960c-d96a78ebf3c0.png)
 
-Art By: JenVonJen
+**Art By: JenVonJen**
 
 **Your favourite DMW Moment?**
 
