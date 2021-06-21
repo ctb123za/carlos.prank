@@ -146,7 +146,7 @@ BW: He Sure did! Took me out for a wonderful evening, He also bought me flowers,
 
 **Ok Bianca. I feel there is something you're not saying here! Describe your relationship with Carlos in one word?**
 
-Platonic! 😊 
+BW:Platonic! 😊 
 
 **We love it! If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
