@@ -87,13 +87,13 @@ Only in use for April fools. <3
    ![image](https://user-images.githubusercontent.com/81630632/116121593-ab1e1200-a6b8-11eb-8881-6844d7360f02.png)
 
 
-**How did your role come about?**
+**Hello Bianca! Can I just say that you're one of my favourite people! How did your role come about?**
 
-BW: Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I felt about becoming a medic on site, one thing lead to another and the rest is history as they say. 😊
+BW: Awww Thanks Kate! Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I felt about becoming a medic on site, one thing lead to another and the rest is history as they say. 😊
 
 **You have been Instrumental with the changes and procedures over the years, what do the Tournament entrees typically go through before it starts?**
 
-Thanks Kate! There is a mandatory process that each entree has to go through before they can start. It invovles Standard checks such as blood pressure, Reaction tests, an IQ test, also taking medical history into account. That's the jist of it without going into much detail. 
+BW: Thanks Kate! There is a mandatory process that each entree has to go through before they can start. It invovles Standard checks such as blood pressure, Reaction tests, an IQ test, also taking medical history into account. That's the jist of it without going into much detail. 
 
 **As one of the core on site Doctors, What do you love most about the DMW Bianca?**
 
@@ -107,15 +107,17 @@ BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole
 
 BW: For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony. I was not best pleased! Before I knew it, my colleagues were signing it. It was quite the scene, I knew there and then that he would not make things easy for me. I remember wanting to recommend him to the nearest psychatic ward I thought he was that crazy. I'm not joking, not even a little!
 
-I made a concious decision early to become his onsite Medic, after he told me that he did not sleep well the night before, I had an incline I had to keep one eye on him. ordinarily this is not an issue. However, due to the Tournament structure, Wild card entrees could potentially spend the best part of 72 hours in a constant match after match scenario without much rest if any! In my experience, Wild card entrees do not stick around for long due to the demand of having one match after another, this was an issue waiting to happen at some point, and it did.
+I made a concious decision early to become his onsite Medic, after he told me that he did not sleep well the night before, I had an incline I had to keep one eye on him. Ordinarily this is not an issue. However, due to the Tournament structure, Wild card entrees could potentially spend the best part of 72 hours in a constant match after match scenario without much rest if any! In my experience, Wild card entrees do not stick around for long due to the demand of having one match after another, this was an issue waiting to happen at some point, and it did.
 
-**If you go into detail for us, what exactly happened just before the round of the last 16/Quarter finals?**
+**If you go into detail for us, what exactly happened just before the round of the last 16, Handicap match, and Quarter finals?**
+
+BW: Certainly, I think it was right after the 2 v 2 scenario where he helped Nicole see off Andre and Angela, he came to see me. barely able to stand, holding his dead and complaining about dizziness and lack of vision. All signs of Transient fatigue since he was in excellent health with no prior medical issues. I helped him sit down in the chair. However, he was intent on sitting on the carpet with his back to the wall. I crouched down beside him and explained if he does not stop now he will risk suffering a relapse with lack of rest, with the chance of being taken to hospital with a IV attatched. But he laughed!! Stating that he isn't done yet. I had it set in my mind that I was going to contact the comitee, and to forfeit him so he can recover. There is only so much a medic can do here. I was about to walk away but he strongly stated that I should ignore my duties since this is what he wants no matter the cost before falling asleep. I had a chat with the co 
 
 The Quarter finals was a test for me as he clearly was suffering from fatigue and lack of mental awareness, Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. Despite at times pleading with him to just stop for his own good. However, given the conditions that he was competing in, he did not have much of a choice, but I got the sense he enjoyed it when things were more difficult. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part!
 
 **Your favourite DMW Moment?**
 
-BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed. The only thing that mattered was their match. What a Spectacle It was.
+BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed. The only thing that mattered was their match. What a Spectacle It was. This was their moment, and nobody was going to take it away from them.
 
 **In his victory speech the first thing he did was thank you for looking after him. Called you a "Royal Physician" Is that where you got your nickname?** 
 
