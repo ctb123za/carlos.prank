@@ -99,7 +99,7 @@ BW: You're being too kind! Thanks Kate! There is a mandatory process that each c
 
 BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me. I love everything about it. 
 
-**Care to name a few that has caught your eye?**
+**Care to name a few entries that has caught your eye?**
 
 BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, but in terms of playstyle he is so much more aggressive. Lea loves a chat during a match, where Carlos tends not to say much unless he is spoken to. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
 
