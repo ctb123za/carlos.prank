@@ -125,7 +125,7 @@ BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the 
 
 BW: In the grand scheme of things, we are not as actively involved since we operate behind the scenes as you know. I do remember crying just a little! It felt like I was there with him the whole time throughout his journey. More overjoyed at the fact that he managed to win the tournament. Yes, ever since then that nickname just stuck with me. One I feel that I don't deserve, I am thankful for the thought. Everyone around here just calls me Doc. Something he coulden't bring himself to do. I think that nickname is either reserved for someone else or he just preferred calling me RP.
 
-He is Cleary a showman, just fun to watch and be around, how he was able to peform on a consistant basis time after time is beyond me. When Nicole told me to look out for him, I had no idea how things were going to turn out. He has a rascal about him no doubt about that. It's easy to give the wrong impression sometimes. To win the love from the crowd, the officals is some feat. He loved picking his battles with the comittee. But It's all good fun!
+He is Cleary a showman, just fun to watch and be around, how he was able to peform on a consistant basis time after time is beyond me. When Nicole told me to look out for him, I had no idea how things were going to turn out. He has a rascal about him no doubt about that. It's easy to give the wrong impression sometimes. To win the love from the crowd, the officals is some feat. He loved picking his battles with the committee. But It's all good fun!
 
 **I heard Carlos Took you out to celebrate one evening, this true?**
 
@@ -138,4 +138,4 @@ BW: Absolutely! If my schedule permits. We try to remain impartial of course. I'
 
 **Thank you for the chat and insight Bianca! Hopefully the next tournament venue and date is announced soon. Would also like to take a moment to Wish Carlos Happy Birthday!! From myself and the rest of the team! We know you hate it, but we don't forget! If someone can kindly tell Carlos to CHECK HIS EMAILS please! We would like to arrange an interview here! Footage from the tournament will be added to the video section shortly! Watch this space. Thank you and goodbye**
 
-BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!! 
+BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!! You'll hear from me later. Hugs and kisses. 
