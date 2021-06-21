@@ -111,7 +111,7 @@ I made a concious decision early to become his onsite Medic, after he told me th
 
 **If you go into detail for us, what exactly happened just before the round of the last 16, Handicap match, and Quarter finals?**
 
-BW: Certainly, I think it was right after the 2 v 2 scenario where he helped Nicole see off Andre and Angela, he came to see me. barely able to stand, holding his dead and complaining about dizziness and lack of vision. All signs of Transient fatigue since he was in excellent health with no prior medical issues. I helped him sit down in the chair. However, he was intent on sitting on the carpet with his back to the wall. I crouched down beside him and explained if he does not stop now he will risk suffering a relapse with lack of rest, with the chance of being taken to hospital with a IV attatched. But he laughed!! Stating that he isn't done yet. I had it set in my mind that I was going to contact the comitee, and to forfeit him so he can recover. There is only so much a medic can do here. I was about to walk away to inform the powers that be, but he strongly stated that I should ignore my duties since this is what he wants no matter the cost before falling asleep. I had a chat with the comitee and we decided that after 40 mins if he is unable to continue based on my diagnosis we'll have no choice but to "declare him unable to continue"
+BW: Certainly, I think it was right after the 2 v 2 scenario where he helped Nicole see off Andre and Angela, he came to see me. barely able to stand, holding his dead and complaining about dizziness and lack of vision. All signs of Transient fatigue since he was in excellent health with no prior medical issues. I helped him sit down in the chair. However, he was intent on sitting on the carpet with his back to the wall. I crouched down beside him and explained if he does not stop now he will risk suffering a relapse with lack of rest, with the chance of being taken to hospital with a IV attatched. But he laughed!! Stating that he isn't done yet. I had it set in my mind that I was going to contact the committee, and to forfeit him so he can recover. There is only so much a medic can do here. I was about to walk away to inform the powers that be, but he strongly stated that I should ignore my duties since this is what he wants no matter the cost before falling asleep. I had a chat with the comitee and we decided that after 40 mins if he is unable to continue based on my diagnosis we'll have no choice but to "declare him unable to continue"
 
 I went back to the room and watched over him, after 20 odd mins he woke up, again, I crouched down beside him and checked him over. This time he pulled me down beside him and I landed in his arms and he stated "Is this a better view?" again voicing my displeasure. It sounds forceful. But to be fair he didn't use that much strength.  However, he did say that If was uncomfortable I was free to get up. He seemed Clam, relaxed, fresh like a daisy! So there I was, in his arms just chatting about life and my interests. I felt the closer I could get, the better I could examine him, it seemed to put him at ease and I started to get less nervious. 
 
@@ -131,8 +131,11 @@ He is Cleary a showman, just fun to watch and be around, how he was able to pefo
 
 BW: He Sure did! Took me out for a wonderful evening, He also bought me flowers, some chocolates and a gift. Even took me dancing one time since I did not believe him when he said he could Dance. You can say he made up for all the stress he caused me haha! There are some people that just suck you in with their infectious personality, and he is one of them. I really had alot of fun. 😊 
 
+**Ok Bianca. I feel there is something you're not saying here! Describe your relationship with Carlos in one word?**
 
-**If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
+Platonic! 😊 
+
+**We love it! If there ought to be another event, would you voulenteer again? And who would you liked to be assigned to?**
 
 BW: Absolutely! If my schedule permits. We try to remain impartial of course. I'm really just glad to be able to help people. We got to make sure that the committee doesn't do anything lavish and remain grounded 😉
 
