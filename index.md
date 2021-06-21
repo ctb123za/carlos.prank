@@ -105,8 +105,8 @@ BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole
 
 ![image](https://user-images.githubusercontent.com/81630632/122821020-36d8a700-d2d4-11eb-80d8-6ecd5d87b423.png)
 
-                                                                                                                 **Carlos Lopes & Lea Burger in thier respective shots. 
-                                                                                                                    Tantalus 2nd Generation. #6 and #2 respectively
+ **Carlos Lopes & Lea Burger in thier respective shots. 
+   Tantalus 2nd Generation. #6 and #2 respectively**
 
 **Yes! Loved it, read it twice. Let's talk about Carlos Lopes, our charismatic Champion, Were you assigned to him? Or was it a choice that was made early on?**
 
