@@ -117,6 +117,10 @@ I went back to the room and watched over him, after 20 odd mins he woke up, agai
 
 The fatigue seemed gone, his awareness was back. Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. Despite at times pleading with him to just stop for his own good. However, given the conditions that he was competing in, he did not have much of a choice, but I got the sense he enjoyed it when things were more difficult. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part! He stood up, helped me up and left for his next match. I made sure to observe him throughout the rest of it
 
+![image](https://user-images.githubusercontent.com/81630632/122811813-d55f0b00-d2c8-11eb-960c-d96a78ebf3c0.png)
+
+Art By: JenVonJen
+
 **Your favourite DMW Moment?**
 
 BW: Oh gosh there have been a fair few! It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed. The only thing that mattered was their match. What a Spectacle It was. This was their moment, and nobody was going to take it away from them.
