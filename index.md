@@ -156,4 +156,4 @@ BW: Absolutely! If my schedule permits. We try to remain impartial of course. I'
 
 **Thank you for the chat and insight Bianca! Hopefully the next tournament venue and date is announced soon. Would also like to take a moment to Wish Carlos Happy Birthday!! From myself and the rest of the team! We know you hate it, but we don't forget! If someone can kindly tell Carlos to CHECK HIS EMAILS please! We would like to arrange an interview here! Footage from the tournament will be added to the video section shortly! Watch this space. Thank you and goodbye!**
 
-BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!! Hugs and kisses. 
+BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!! Hugs and kisses.  
