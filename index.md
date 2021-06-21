@@ -89,19 +89,27 @@ Only in use for April fools. <3
 
 **How did your role come about?**
 
-BW: Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I feel about leading that division, one thing lead to another and the rest is history as they say. 😊 
+BW: Well, I initially started out as a contestant. However, after being knocked out in the preliminaries I was around when there were a few concerns with the well being of other entrees, one thing led to another and the committee asked how I felt about becoming a medic on site, one thing lead to another and the rest is history as they say. 😊
 
-**As one of the core on site medical personnel, What do you love most about the DMW Bianca?**
+**You have been Instrumental with the changes and procedures over the years, what do the Tournament entrees typically go through before it starts?**
 
-BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me.
+Thanks Kate! There is a mandatory process that each entree has to go through before they can start. It invovles Standard checks such as blood pressure, Reaction tests, an IQ test, also taking medical history into account. That's the jist of it without going into much detail. 
+
+**As one of the core on site Doctors, What do you love most about the DMW Bianca?**
+
+BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me. I love everything about it. 
 
 **Care to name a few that has caught your eye?**
 
 BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, but in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
 
-**Yes! Loved it, read it twice. You were assigned to Carlos Lopes, what was that like?**
+**Yes! Loved it, read it twice. Let's talk about Carlos Lopes, our charismatic Champion, Were you assigned to him? Or was it a choice that was made early on?**
 
-BW: For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony. I was not best pleased! Before I knew it, my colleagues were signing it. It was quite the scene, I knew there and then that he would not make things easy for me. I remember wanting to recommend him to the nearest psychatic ward I thought he was that crazy.
+BW: For a charming and well-mannered man it was An absolute nightmare! I will never forget when I first met him, as standard procedure we run check ups on each competitor, he came into the room, I explained who I was and what we’ll be doing. When it came to a blood pressure test he pulled out his arm before I could strap it in and he started singing Sledgehammer by Fifth Harmony. I was not best pleased! Before I knew it, my colleagues were signing it. It was quite the scene, I knew there and then that he would not make things easy for me. I remember wanting to recommend him to the nearest psychatic ward I thought he was that crazy. I'm not joking, not even a little!
+
+I made a concious decision early to become his onsite Guardian Angel, after he told me that he did not sleep well the night before, I had an incline I had to keep one eye on him. Ordininialry this is not an issue. However, due to the Tournament structure, Wild card entrees could potentially spend the best part of 72 hours in a constant match after match scenario without much rest if any! In my experience, Wild card entrees do not stick around for long due to the demand of having one match after another, this was an issue waiting to happen. And he would do it, no matter what the cost I felt. 
+
+**Can you go into detail what exactly happened just before the round of the last 16/Quarter finals?**
 
 The Quarter finals was a test for me as he clearly was suffering from fatigue and lack of mental awareness, Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. Despite at times pleading with him to just stop for his own good. However, given the conditions that he was competing in, he did not have much of a choice, but I got the sense he enjoyed it when things were more difficult. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part!
 
