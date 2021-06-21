@@ -122,8 +122,7 @@ I went back to the room and watched over him, after 20 odd mins he woke up, agai
 
 The fatigue seemed gone, his awareness was back. Thank God the committee gave him some time to rest, it was not looking good at some point, the human body simply cannot sustain long hours of concentration without having a break. That is where he is reckless. Despite at times pleading with him to just stop for his own good. However, given the conditions that he was competing in, he did not have much of a choice, but I got the sense he enjoyed it when things were more difficult. He did not care much for his own health. The willingness to keep pushing was keeping him going. He Knew there was a strong chance he would meet Lea in the final, it was what he and the rest of Tantalus wanted. Put me through my paces and I was not even taking part! He stood up, helped me up and left for his next match. I made sure to observe him throughout the rest of it. I started to understand him better while observing him more. He is someone that needs to express himself, won't be bogged down, and does not shy away from confrontation. As we would find out subsequently through the rounds. I guess he was feeling good since he moon walked off the stage!
 
-![image](https://user-images.githubusercontent.com/81630632/122824176-35a97900-d2d8-11eb-885e-c9f279bf9c6c.png)
-
+![image](https://user-images.githubusercontent.com/81630632/122824470-99cc3d00-d2d8-11eb-8fb0-890f05d50145.png)
 
 Twitch Chat reaction after Carlos celebrates a quarter final win by moonwalking off stage.
 
