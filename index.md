@@ -95,7 +95,7 @@ BW: Awww Thanks Kate! Well, I initially started out as a contestant. However, af
 
 BW: You're being too kind! Thanks Kate! There is a mandatory process that each contestant has to go through before they can start. It invovles Standard checks such as blood pressure, Reaction tests, an IQ test, also taking medical history into account. That's the jist of it without going into much detail. 
 
-**As one of the core on site Medics, What do you love most about the DMW Bianca?**
+**As one of the core on site Doctors, What do you love most about the DMW Bianca?**
 
 BW: Everyone has a Story in their own right, The competitors, even the Tournaments history over the years, it has been a privilege for me to be a part of. There are always some contestants that catch the eye due to their presence and personality, you just cannot help but take an interest. I'm grateful to have such a wonderful team around me. I love everything about it. 
 
