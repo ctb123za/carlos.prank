@@ -130,7 +130,7 @@ In a flash it seemed that the fatigue was gone, his awareness was back. After do
 
 
 
-**Wow! Your favourite DMW Moment?**
+**Wow! Your favourite DMW Moment? Or Quote?**
 
 BW: Oh gosh there have been a fair few! I absolutely love the Sledging aspect of it, When comments and little jibes are made. Carlos seemed to always have a come back ready when provoked, the pawn becoming a queen insult, and asking Andre why he is in the vicinity if a lady should not be present made me chuckle! Unofficially of course! 😉 It must be when Carlos And Lea made the final their own. Two individuals on top of their game, striving for the same result. Their history, mutual understanding and respect for each other could be felt throughout the entire building. I remember Lea taking off her wedding ring and placing it on the table, while Carlos took off his cross and made a heart shape around it. A Prefect symbolic touch by both of them, one where words were not needed. The only thing that mattered was their match. They both sat there almost as if they have done it many times before. What a Spectacle It was. This was their moment, and nobody was going to take it away from them.
 
