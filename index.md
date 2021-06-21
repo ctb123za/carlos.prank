@@ -101,7 +101,7 @@ BW: Everyone has a Story in their own right, The competitors, even the Tournamen
 
 **Care to name a few entries that has caught your eye?**
 
-BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, but in terms of playstyle he is so much more aggressive. Lea loves a chat during a match, where Carlos tends not to say much unless he is spoken to. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
+BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Here is a guy who has never entered before, and goes on to take first place in his maiden appearance. It's unheard of, It does not happen. Especially with Wild Card Entries. He is Very similar to Lea with their approach. But in terms of playstyle he is so much more aggressive. Lea loves a chat during a match, where Carlos tends not to say much unless he is spoken to. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
 
 ![image](https://user-images.githubusercontent.com/81630632/122821020-36d8a700-d2d4-11eb-80d8-6ecd5d87b423.png) 
 
