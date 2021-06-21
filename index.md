@@ -140,7 +140,7 @@ He is Cleary a showman, just fun to watch and be around, how he was able to pefo
 
 ![image](https://user-images.githubusercontent.com/81630632/122811813-d55f0b00-d2c8-11eb-960c-d96a78ebf3c0.png)
 
-**Art By: JenVonJen** 
+*Art By: JenVonJen - A vist to the Royal Physician is all you need.
 
 **I heard Carlos Took you out to celebrate one evening, this true?**
 
