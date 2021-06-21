@@ -136,4 +136,6 @@ BW: He Sure did! Took me out for a wonderful evening, He also bought me flowers,
 
 BW: Absolutely! If my schedule permits. We try to remain impartial of course. I'm really just glad to be able to help people. We got to make sure that the committee doesn't do anything lavish and remain grounded 😉
 
-**Thank you for the chat and insight Bianca! Hopefully the next tournament venue and date is announced soon. Would also like to take a moment to Wish Carlos Happy Birthday!! We know you hate it, but we don't forget! IF you're reading **
+**Thank you for the chat and insight Bianca! Hopefully the next tournament venue and date is announced soon. Would also like to take a moment to Wish Carlos Happy Birthday!! From myself and the rest of the team! We know you hate it, but we don't forget! If someone can kindly tell Carlos to CHECK HIS EMAILS please! We would like to arrange an interview here! Footage from the tournament will be added to the video section shortly! Watch this space. Thank you and goodbye**
+
+BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!! 
