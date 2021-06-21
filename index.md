@@ -103,10 +103,9 @@ BW: Everyone has a Story in their own right, The competitors, even the Tournamen
 
 BW: Leanna’s History with the tournament is one that you cannot ignore, Nicole with her contribution and near misses, But for me Carlos Is someone like I’ve never seen. So focused and determined to win. And yet enjoy each moment for what it is. Very similar to Lea, but in terms of playstyle he is so much more aggressive. Lea’s book makes for more interesting reading I assure you. If you have not read it already.
 
-![image](https://user-images.githubusercontent.com/81630632/122821020-36d8a700-d2d4-11eb-80d8-6ecd5d87b423.png)
-
- **Carlos Lopes & Lea Burger in thier respective shots. 
-   Tantalus 2nd Generation. #6 and #2 respectively**
+![image](https://user-images.githubusercontent.com/81630632/122821020-36d8a700-d2d4-11eb-80d8-6ecd5d87b423.png) 
+   Carlos Lopes & Lea Burger in thier respective shots. 
+   Tantalus 2nd Generation. #6 and #2 respectively
 
 **Yes! Loved it, read it twice. Let's talk about Carlos Lopes, our charismatic Champion, Were you assigned to him? Or was it a choice that was made early on?**
 
