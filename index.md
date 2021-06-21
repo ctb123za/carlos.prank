@@ -91,7 +91,7 @@ Only in use for April fools. <3
 
 BW: Awww Thanks Kate! Well, I initially started out as a contestant. However, after being knocked out in the preliminaries when the DMW tradition began, I was around when there were a few concerns with the well being of other entrees. Since It can potentially go on for long hours at a time, one thing led to another and the committee asked how I felt about becoming a medic on site, one thing lead to another, and the rest is history as they say. 😊
 
-**You have been Instrumental with the changes and procedures over the years, what do the Tournament entrees typically go through before it starts?**
+**You have been Instrumental with the changes and procedures over the years, what do the Tournament entries typically go through before it starts?**
 
 BW: You're being too kind! Thanks Kate! There is a mandatory process that each contestant has to go through before they can start. It invovles Standard checks such as blood pressure, Reaction tests, an IQ test, also taking medical history into account. That's the jist of it without going into much detail. 
 
