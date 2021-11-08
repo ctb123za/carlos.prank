@@ -189,11 +189,11 @@ CL: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth!"
 
 ZM: "Put me down this instant before you do something silly!"
 
-Carlos: "Sure, you'll probably be fine if you land on your butt anyway"
+Carlos: "Sure I'll put you down, you'll probably be fine if you land on your butt anyway"
 
 ZM:"I beg your pardon?"
 
-CL: "I'm just saying you got a cute behind that's all"
+CL: "If It's any consolation, you do have a nice butt"
 
 ZM: "Thanks But, I mean, This isn't helping any!"
 
@@ -201,7 +201,7 @@ CL: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!
 
 ZM: "oh my God. Somebody help me!"
 
-CL: "I am Someone, and I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
+CL: "I am Someone!and I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
 
 ZM: "You're such an a**hole, Thank you though" 
 
