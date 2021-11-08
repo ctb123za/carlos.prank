@@ -83,6 +83,8 @@ Only in use for April fools. <3
 
 
 ### 🦋 Interview with Bianca Williams 🦋  
+
+
  
    ![image](https://user-images.githubusercontent.com/81630632/116121593-ab1e1200-a6b8-11eb-8881-6844d7360f02.png)
 
@@ -159,3 +161,28 @@ BW: Absolutely! If my schedule permits. We try to remain impartial of course. I'
 **Thank you for the chat and insight Bianca! Hopefully the next tournament venue and date is announced soon. Would also like to take a moment to Wish Carlos Happy Birthday!! From myself and the rest of the team! We know you hate it, but we don't forget! If someone can kindly tell Carlos to CHECK HIS EMAILS please! We would like to arrange an interview here! Footage from the tournament will be added to the video section shortly! Watch this space. Thank you and goodbye!**
 
 BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
+
+**DMW Stories**
+
+### 👾 Zoe Marshall 👾 ![image](https://user-images.githubusercontent.com/81630632/140745683-3af534c9-eb8e-4272-940e-a6dcb226a6ec.png)
+
+ZM: I had just sprained my ankle, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's
+
+Anyway, so he spots I'm in some discomfort and offers to give me a hand. I remember it exactly seeing as It's not something you experience everyday. 
+
+Carlos: "Grab on, I'll carry you over"
+Zoe: "No Thanks, It's not far"
+
+At this point he proceeds to carry me, leaving me no option really. 
+
+Carlos: "You know Zoe, you're heavier than you look!"
+Zoe: "None of that please! A comment a single man would probably make such as yourself"
+Calros: "Are you alwyas this sassy? I'm wondering something though."
+Zoe: "Put me down this instant before you do something silly!"
+Carlos: "Sure, you'll probably be fine if you land on your butt anyway"
+Zoe: "I beg your pardon?"
+Carlos: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!"
+Zoe: "oh my god Carlos! Don't do it!"
+Carlos: "Relax, here we made it, Precious cargo still in tact"
+Zoe: "You're such an a**hole, Thank you though :)" 
+Carlos: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight"
