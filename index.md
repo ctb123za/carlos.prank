@@ -164,7 +164,10 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 **DMW Stories**
 
-### 👾 Zoe Marshall 👾 ![image](https://user-images.githubusercontent.com/81630632/140745683-3af534c9-eb8e-4272-940e-a6dcb226a6ec.png)
+### 👾 Zoe Marshall 👾 
+
+![image](https://user-images.githubusercontent.com/81630632/140751643-3edf38a7-6c73-450c-afc5-1c0a66340db4.png)
+
 
 ZM: I had just sprained my ankle, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's
 
