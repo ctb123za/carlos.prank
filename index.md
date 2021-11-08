@@ -185,7 +185,7 @@ CL: "You know Zoe, you're heavier than you look!"
 
 ZM: "None of that please! A comment a single man would probably make such as yourself"
 
-CL: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth!"
+CL: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth! Besides you have trouble walking."
 
 ZM: "Put me down this instant before you do something silly!"
 
