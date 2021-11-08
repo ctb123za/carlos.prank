@@ -205,4 +205,4 @@ CL: "Hi! I'm Someone! And I'm helping you Zoe, Relax. here we made it, Precious 
 
 ZM: "Actually, You missed the Mark!" 
 
-CL: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! hahahaha! Later Zoe.
+CL: "You're welcome! You and your attitude can take the last few steps. Thank you for choosing Carlos Airlines, we hope you enjoyed your flight! hahahaha! Later Zoe.
