@@ -201,8 +201,8 @@ CL: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!
 
 ZM: "oh my God. Somebody help me!"
 
-CL: "I am Someone!and I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
+CL: "Hi! I'm Someone! And I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
 
 ZM: "You're such an a**hole, Thank you though" 
 
-CL: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! haha!
+CL: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! hahahaha! Later Zoe.
