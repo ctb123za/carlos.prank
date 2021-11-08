@@ -164,16 +164,16 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 **DMW Stories**
 
-### 👾 Zoe Marshall 👾 
+### 👾 Zoe Marshall - That Carlos Lopes Story. 👾 
 
 ![image](https://user-images.githubusercontent.com/81630632/140752031-c915e967-2062-4a0a-92df-fff3b7952063.png)
 
 
-ZM: I had just sprained my ankle, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's
+ZM: I had just sprained my ankle after having a mishap, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's. Some guys can be overzealous, Since Carlos is known for being aggressive in a competiive enviroment I was cautious. To reiterate, I was a little scared yes! It was a fun moment :)
 
 Anyway, so he spots I'm in some discomfort and offers to give me a hand. I remember it exactly seeing as It's not something you experience everyday. 
 
-Carlos: "Grab on, I'll carry you over"
+Carlos: "You look like you could use a hand. Grab on, I'll carry you over"
 Zoe: "No Thanks, It's not far"
 
 At this point he proceeds to carry me, leaving me no option really. 
@@ -182,13 +182,17 @@ Carlos: "You know Zoe, you're heavier than you look!"
 
 Zoe: "None of that please! A comment a single man would probably make such as yourself"
 
-Calros: "Are you alwyas this sassy? I'm wondering something though."
+Calros: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth!"
 
 Zoe: "Put me down this instant before you do something silly!"
 
 Carlos: "Sure, you'll probably be fine if you land on your butt anyway"
 
 Zoe: "I beg your pardon?"
+
+Carlos: "I'm just saying you got a cute behind that's all"
+
+Zoe: "Thanks But, I mean, This isn't helping any!"
 
 Carlos: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!"
 
