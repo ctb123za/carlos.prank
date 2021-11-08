@@ -169,7 +169,7 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 ![image](https://user-images.githubusercontent.com/81630632/140770357-47f02fe7-f70e-421b-ba77-722e95799fb3.png)
 
 
-ZM: I had just sprained my ankle after having a mishap, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's. Some guys can be overzealous, Since Carlos is known for being aggressive in a competiive enviroment I was cautious. To reiterate, I was a little scared yes! It was a fun moment :)
+ZM: I had just sprained my ankle after having a mishap, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's. Some guys can be overzealous, Since Carlos is known for being aggressive in a competiive enviroment I was cautious. To reiterate, I was a little scared yes! It was a fun moment 😃
 
 Anyway, so he spots I'm in some discomfort and offers to give me a hand. Nicole still has the video since she was filming something else at the time and then this happened...And No! Nobody is ever to view that video....Ever! 😃
 
