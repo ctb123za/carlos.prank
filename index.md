@@ -164,42 +164,45 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 **DMW Stories**
 
-### 👾 Zoe Marshall - That Carlos Lopes Story. 👾 
+### 👾 Zoe Marshall - That Carlos Lopes DMW Story. 👾 
 
 ![image](https://user-images.githubusercontent.com/81630632/140770357-47f02fe7-f70e-421b-ba77-722e95799fb3.png)
 
 
 ZM: I had just sprained my ankle after having a mishap, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's. Some guys can be overzealous, Since Carlos is known for being aggressive in a competiive enviroment I was cautious. To reiterate, I was a little scared yes! It was a fun moment :)
 
-Anyway, so he spots I'm in some discomfort and offers to give me a hand. I remember it exactly seeing as It's not something you experience everyday. 
+Anyway, so he spots I'm in some discomfort and offers to give me a hand. Nicole still has the video since she was filming something else at the time and then this happened...
 
-Carlos: "You look like you could use a hand. Grab on, I'll carry you over"
+**Special Thanks To Nicole Du Toit for the transcript**
+
+CL: "You look like you could use a hand. Grab on, I'll carry you over"
+
 Zoe: "No Thanks, It's not far"
 
 At this point he proceeds to carry me, leaving me no option really. 
 
-Carlos: "You know Zoe, you're heavier than you look!"
+CL: "You know Zoe, you're heavier than you look!"
 
-Zoe: "None of that please! A comment a single man would probably make such as yourself"
+ZM: "None of that please! A comment a single man would probably make such as yourself"
 
-Calros: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth!"
+CL: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth!"
 
-Zoe: "Put me down this instant before you do something silly!"
+ZM: "Put me down this instant before you do something silly!"
 
 Carlos: "Sure, you'll probably be fine if you land on your butt anyway"
 
-Zoe: "I beg your pardon?"
+ZM:"I beg your pardon?"
 
-Carlos: "I'm just saying you got a cute behind that's all"
+CL: "I'm just saying you got a cute behind that's all"
 
-Zoe: "Thanks But, I mean, This isn't helping any!"
+ZM: "Thanks But, I mean, This isn't helping any!"
 
-Carlos: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!"
+CL: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!"
 
-Zoe: "oh my God. Somebody help me!"
+ZM: "oh my God. Somebody help me!"
 
-Carlos: "I am Someone, and I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
+CL: "I am Someone, and I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
 
-Zoe: "You're such an a**hole, Thank you though" 
+ZM: "You're such an a**hole, Thank you though" 
 
-Carlos: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! haha!
+CL: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! haha!
