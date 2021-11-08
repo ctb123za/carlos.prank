@@ -171,7 +171,7 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 ZM: I had just sprained my ankle after having a mishap, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's. Some guys can be overzealous, Since Carlos is known for being aggressive in a competiive enviroment I was cautious. To reiterate, I was a little scared yes! It was a fun moment :)
 
-Anyway, so he spots I'm in some discomfort and offers to give me a hand. Nicole still has the video since she was filming something else at the time and then this happened...
+Anyway, so he spots I'm in some discomfort and offers to give me a hand. Nicole still has the video since she was filming something else at the time and then this happened...And No! Nobody is ever to view that video....Ever!
 
 **Special Thanks To Nicole Du Toit for the transcript**
 
