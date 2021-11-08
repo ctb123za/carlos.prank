@@ -166,7 +166,7 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 ### 👾 Zoe Marshall 👾 
 
-![image](https://user-images.githubusercontent.com/81630632/140751643-3edf38a7-6c73-450c-afc5-1c0a66340db4.png)
+![image](https://user-images.githubusercontent.com/81630632/140752031-c915e967-2062-4a0a-92df-fff3b7952063.png)
 
 
 ZM: I had just sprained my ankle, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's
@@ -179,13 +179,23 @@ Zoe: "No Thanks, It's not far"
 At this point he proceeds to carry me, leaving me no option really. 
 
 Carlos: "You know Zoe, you're heavier than you look!"
+
 Zoe: "None of that please! A comment a single man would probably make such as yourself"
+
 Calros: "Are you alwyas this sassy? I'm wondering something though."
+
 Zoe: "Put me down this instant before you do something silly!"
+
 Carlos: "Sure, you'll probably be fine if you land on your butt anyway"
+
 Zoe: "I beg your pardon?"
+
 Carlos: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!"
+
 Zoe: "oh my god Carlos! Don't do it!"
+
 Carlos: "Relax, here we made it, Precious cargo still in tact"
+
 Zoe: "You're such an a**hole, Thank you though :)" 
+
 Carlos: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight"
