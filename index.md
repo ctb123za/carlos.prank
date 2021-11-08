@@ -183,9 +183,9 @@ At this point he proceeds to carry me, leaving me no option really.
 
 CL: "You know Zoe, you're heavier than you look!"
 
-ZM: "None of that please! A comment a single man would probably make such as yourself"
+ZM: "None of that please! I did not ask for an escort!"
 
-CL: "Are you alwyas this sassy? I'll roll out the red carpet but it has teeth! Besides you have trouble walking."
+CL: "Are you always this sassy? I'll roll out the red carpet but it has teeth! Besides you have trouble walking. We're halfway there"
 
 ZM: "Put me down this instant before you do something silly!"
 
@@ -193,7 +193,7 @@ Carlos: "Sure I'll put you down, you'll probably be fine if you land on your but
 
 ZM:"I beg your pardon?"
 
-CL: "If It's any consolation, you do have a nice butt"
+CL: "hahaha! You want me to say it? Fine, yeah you have a nice behind happy now?"
 
 ZM: "Thanks But, I mean, This isn't helping any!"
 
@@ -201,8 +201,8 @@ CL: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!
 
 ZM: "oh my God. Somebody help me!"
 
-CL: "Hi! I'm Someone! And I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
+CL: "Hi! I'm Someone! And I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact, Satisfied?"
 
-ZM: "You're such an a**hole, Thank you though" 
+ZM: "Actually, You missed the Mark!" 
 
 CL: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! hahahaha! Later Zoe.
