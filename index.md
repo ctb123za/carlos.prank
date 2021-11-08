@@ -192,10 +192,10 @@ Zoe: "I beg your pardon?"
 
 Carlos: "Are you having fun yet? Houston, you are clear for landing in 3....2.....1!"
 
-Zoe: "oh my god Carlos! Don't do it!"
+Zoe: "oh my God. Somebody help me!"
 
-Carlos: "Relax, here we made it, Precious cargo still in tact"
+Carlos: "I am Someone, and I'm helping you Zoe, Relax. here we made it, Precious cargo still in tact"
 
-Zoe: "You're such an a**hole, Thank you though :)" 
+Zoe: "You're such an a**hole, Thank you though" 
 
-Carlos: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight"
+Carlos: "You're welcome! thank you for choosing Carlos Airlines, we hope you enjoyed your flight! haha!
