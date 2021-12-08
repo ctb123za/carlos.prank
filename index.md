@@ -176,7 +176,7 @@ I thought I'd share this Story with the Tournament just round the corner, I'll l
 
 I'll try to be brief!
 
-So our very own Carlos "Bashful" Lopes came around to discuss potential issues with his participation due to his Passport being expired. As we have not yet been formally introduced, It was a good time to catch up with the man that Arianne, Nicole, Lea and everyone else speaks so highly about. I was feeling under the weather. When I do not have breakfast I tend to get cranky as most of you know! Long story short, I realy wanted my buttered bread, Eggs, and Coffee! And I like it in a specific way. Of course he likes a challenge. So he offers to do it in under 5 mins. While singing Pat Benatar - Heartbreaker. Switching certain lyrics for eggs and toast! :D 
+So our very own Carlos "Bashful" Lopes came around to discuss potential issues with his participation due to his Passport being expired. As we have not yet been formally introduced, It was a good time to catch up with the man that Arianne, Nicole, Lea and everyone else speaks so highly about. I was feeling under the weather. When I do not have breakfast I tend to get cranky as most of you know! Long story short, I realy wanted my buttered bread, Eggs, and Coffee! And I like it in a specific way. Of course he likes a challenge. So he offers to do it in under 5 mins. While singing Pat Benatar - Heartbreaker. Switching certain lyrics for eggs and toast! 😁 
 
 To my suprise instead of asking for a spatula to flip the eggs, he asked for a spoon. I threatened to withdraw his application if he messes it up, but that only made him smile. After a few tosses of the bread and eggs, it was ready! I did notice that he likes to flick things with his wrist while with precision! As if he was going too fast and had to slow down by tapping his shoulder. We've all seen it. But this time it was with breakfast. Very Entertaining! But only one question remained. Why A spoon?
 
@@ -186,7 +186,7 @@ He said:
 ![image](https://user-images.githubusercontent.com/81630632/145247947-1579ee2e-d563-48bb-90ad-caf7082b1de8.png)
 
 
-And that was my introduciton to Carlos, never before have I signed off an application so fast in my life. I started to understand that he does like to challenge himself by making things harder......Using a spoon to make eggs though?! absurd! :) Delicious breakfast though! Defo made me a fan!
+And that was my introduciton to Carlos, never before have I signed off an application so fast in my life. I started to understand that he does like to challenge himself by making things harder......Using a spoon to make eggs though?! absurd! 🤭 Delicious breakfast though! Defo made me a fan!
 
 See you guys soon. 
 Zoe.M ❤️
