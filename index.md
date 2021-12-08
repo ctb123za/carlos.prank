@@ -174,10 +174,17 @@ Heya Guys N Girls!
 
 I thought I'd share this Story with the Tournament just round the corner, I'll leave the player analysis To Sophie Who does a fabulous Job As always!
 
-As you know, there are conditions that need to be met with each entry such as having a valid form of identity. Since the Pandemic can cause delays with paperwork we have to take the right action as you would expect, nobody is exempt from this. Not even our very own Carlos Lopes! Who fell into this category. He was so concerned. He asked for a private meeting to discuss this further. Despite the Rumours You may have heard from Arianne! :)
-
-
 I'll try to be brief!
+
+So our very own Carlos "Bashful" Lopes came around to discuss potential issues with his participation due to his Passport being expired. As we have not yet been formally introduced, It was a good time to catch up with the man that Arianne, Nicole, Lea and everyone else speaks so highly about. I was feeling under the weather. When I do not have breakfast I tend to get cranky as most of you know! Long story short, I realy wanted my buttered bread, Eggs, and Coffee! And I like it in a specific way. Step up Mr Lopes 
+
+
+
+![image](https://user-images.githubusercontent.com/81630632/145247947-1579ee2e-d563-48bb-90ad-caf7082b1de8.png)
+
+
+
+
 
 
 
