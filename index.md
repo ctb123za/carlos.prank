@@ -186,7 +186,7 @@ He said:
 ![image](https://user-images.githubusercontent.com/81630632/145247947-1579ee2e-d563-48bb-90ad-caf7082b1de8.png)
 
 
-And that was my introduciton to Carlos, never before have I signed off an application so fast in my life. I started to understand that he does like to challenge himself by making things harder......Using a spoon to make eggs though?! With the yolk intact? But How? absurd! 🤭 Delicious breakfast though! Defo made me a fan! Carlos will be my pick.
+And that was my introduciton to Carlos, never before have I signed off an application so fast in my life. I lost track of time but I gave him the benefit of the doubt. I started to understand that he does like to challenge himself by making things harder......Using a spoon to make eggs though?! With the yolk intact? But How? absurd! 🤭 Delicious breakfast though! Defo made me a fan! Carlos will be my pick.
 
 See you guys soon. 
 Zoe.M ❤️
