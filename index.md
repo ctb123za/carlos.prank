@@ -169,6 +169,43 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 ![image](https://user-images.githubusercontent.com/81630632/145227276-354a02b6-7da7-4aeb-835e-284e12d1a951.png)
 
 
+Heya Guys N Girls! 
+
+I thought I'd share this Story with the Tournament just round the corner, I'll leave the player analysis To Sophie Who does a fabulous Job As always!
+
+As you know, there are conditions that need to be met with each entry such as having a valid form of identity. Since the Pandemic can cause delays with paperwork we have to take the right action as you would expect, nobody is exempt from this. Not even our very own Carlos Lopes! Who fell into this category. He was so concerned. He asked for a private meeting to discuss this further. Despite the Rumours You may have heard from Arianne! :)
+
+
+I'll try to be brief!
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 ZM: I had just sprained my ankle after having a mishap, I could still move. However, It was super uncomfortable! I've not Met Carlos offically at this point, besides from the odd hello and how are you's. Some guys can be overzealous, Since Carlos is known for being aggressive in a competiive enviroment I was cautious. To reiterate, I was a little scared yes! It was a fun moment 😃
 
