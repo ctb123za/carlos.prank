@@ -164,9 +164,9 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 **DMW Stories**
 
-### 👾 Zoe Marshall - Pre DMW Story. 👾 
+### 👾 Zoe Marshall - DMW Committee Member/Coordinator 👾 
 
-![image](https://user-images.githubusercontent.com/81630632/145226923-af173a3d-09a3-49d5-b69c-f1abca3b689a.png)
+![image](https://user-images.githubusercontent.com/81630632/145227276-354a02b6-7da7-4aeb-835e-284e12d1a951.png)
 
 
 
