@@ -166,7 +166,8 @@ BW: Thanks for having me, HAPPY BIRTHDAY CARLOS!!!!!!
 
 ### 👾 Zoe Marshall - DMW Committee Member/Coordinator 👾 
 
-![image](https://user-images.githubusercontent.com/81630632/145227276-354a02b6-7da7-4aeb-835e-284e12d1a951.png)
+![image](https://user-images.githubusercontent.com/81630632/145239329-53e18b4c-bfa4-4a07-86d6-66f74e9315a2.png)
+
 
 
 Heya Guys N Girls! 
