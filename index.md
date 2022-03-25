@@ -273,7 +273,8 @@ If you're a 80's/90's Kid you'll surley recongise the picture below. It will sta
 
 According to one source *Cough Cough* Suzy.S.H! Our very own Resident Evil Charmer, Carlos L. Will take up the leading role having displayed impressive raw voice over talent in October/Dec while doing a recording session in London last year. With another sheduled in the coming two months with the talented Nicole T. Seems as though those two cannot be seperated at the moment! Sonny.B is also set to feature. 
 
-![image](https://user-images.githubusercontent.com/81630632/160142963-c1051c27-2d49-4f84-ac4a-6df025791a18.png)
+![image](https://user-images.githubusercontent.com/81630632/160154194-f933064b-6754-4e59-b08e-6c1723f2a58a.png)
+
 
 
 We can't say much at this time, fingers crossed the hurdles are overcome for this to become a reality. Chances are likely that it will become a fan made project rather than an actual release due to liscening issues. It's still in the super early stages. However, we're excited either way! 
