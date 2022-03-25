@@ -262,3 +262,16 @@ CL: "Hi! I'm Someone! And I'm helping you Zoe, Relax. here we made it, Precious 
 ZM: "Actually, You missed the Mark!" 
 
 CL: "You're welcome! You and your attitude can take the last few steps. Thank you for choosing Carlos Airlines, we hope you enjoyed your flight! hahahaha! Later Zoe.
+
+
+### 👾 Amanda.M - Potential Exciting Gaming News!! 👾
+
+If you're a 80's/90's Kid you'll surley recongise the picture below. It will star a few household names within our community. 
+
+According to one source *Cough Cough* Suzy.S.H! Our very own Resident Evil Charmer, Carlos L. Will take up the leading role having displayed impressive raw voice over talent in October/Dec doing a recording session in London last year. With another sheduled in the coming two months. 
+
+We can't say much at this time, fingers crossed the hurdles are overcome for this to become a reality. Chances are likely that it will become a fan made project rather than an actual release due to liscening issues. However, we're excited either way! 
+
+Stay Safe.
+Stay Brave.
+Amanda.M
