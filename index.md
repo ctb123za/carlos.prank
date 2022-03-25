@@ -266,6 +266,9 @@ CL: "You're welcome! You and your attitude can take the last few steps. Thank yo
 
 ### 👾 Amanda.M - Potential Exciting Gaming News!! 👾
 
+![image](https://user-images.githubusercontent.com/81630632/160145935-d80fb2ce-117b-423f-950e-656561888f9f.png)
+
+
 If you're a 80's/90's Kid you'll surley recongise the picture below. It will star a few household names within our community. 
 
 According to one source *Cough Cough* Suzy.S.H! Our very own Resident Evil Charmer, Carlos L. Will take up the leading role having displayed impressive raw voice over talent in October/Dec while doing a recording session in London last year. With another sheduled in the coming two months with the talented Nicole T. Seems as though those two cannot be seperated at the moment! Sonny.B is also set to feature. 
